@@ -1,5 +1,5 @@
 ### Hi there 👋
-**BIENVENIDO**
+**BIENVENID@**
 <br>
 Hola soy Brenda xd
 #UAA
